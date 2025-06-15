@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ritik4400
-- 👀 I’m interested in software devlopment - frontend and Backend 
+- 👀 I’m interested in software devlopment -  Backend 
 - 🌱 I’m currently learning backend devlopment 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...8302769944 and ritiktrivedi902@gmail.com
